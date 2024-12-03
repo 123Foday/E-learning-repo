@@ -12,6 +12,6 @@ Hawanatu Bah
 
 Joshua Sesay
 
-Issa Kalokoh
+Issa Kalokoh.          9495
 
 Samuel M Kamara
